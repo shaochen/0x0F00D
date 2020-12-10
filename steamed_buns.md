@@ -16,7 +16,7 @@ Adapted for my european convenience
 * fat ( butter, duck, pork, ..): 75 gr
 
 
-## the magic
+## the magic!
 
 ### protecting the yeast
 
